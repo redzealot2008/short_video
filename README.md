@@ -8,7 +8,7 @@
 [吓一跳就止嗝，这是咋回事？](http://video.pearvideo.com/mp4/third/20180528/cont-1354307-11549788-132237-hd.mp4)  
 [空腹喝牛奶，对身体不好？](http://video.pearvideo.com/mp4/third/20180507/cont-1338667-11549788-112931-hd.mp4)  
 [肚里闹虫，嘴上磨牙？不靠谱](http://video.pearvideo.com/mp4/third/20180511/cont-1342374-11549788-143020-hd.mp4)  
-[小心越喝越“渴”](http://video.pearvideo.com/mp4/third/20180622/cont-1372678-11549788-122457-hd.mp4)
+[小心越喝越“渴”](http://video.pearvideo.com/mp4/third/20180622/cont-1372678-11549788-122457-hd.mp4)  
 [科普！父母都矮的孩子能长很高吗？](http://video.pearvideo.com/mp4/adshort/20180926/cont-1441359-12131512-135736_adpkg-ad_hd.mp4)
 
 #### 医学类
