@@ -11,4 +11,9 @@
 [小心越喝越“渴”](http://video.pearvideo.com/mp4/third/20180622/cont-1372678-11549788-122457-hd.mp4)
 
 #### 医学类
-[药神背后：1分钟告诉你白血病常识](http://video.pearvideo.com/mp4/adshort/20180711/cont-1385503-12016563-104626_adpkg-ad_hd.mp4 )
+[药神背后：1分钟告诉你白血病常识](http://video.pearvideo.com/mp4/adshort/20180711/cont-1385503-12016563-104626_adpkg-ad_hd.mp4 )  
+[医学博士给你讲疫苗接种常识！](http://video.pearvideo.com/mp4/third/20180726/cont-1397646-11426073-161239-hd.mp4)  
+[get现场急救快速止血方法！](http://video.pearvideo.com/mp4/third/20180907/cont-1430050-10002550-142207-hd.mp4)
+
+#### 育儿类
+[烤箱烤的食物，宝宝吃了会上火？](http://video.pearvideo.com/mp4/third/20180926/cont-1443432-11128901-095929-hd.mp4)
