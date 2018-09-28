@@ -9,3 +9,6 @@
 [空腹喝牛奶，对身体不好？](http://video.pearvideo.com/mp4/third/20180507/cont-1338667-11549788-112931-hd.mp4)  
 [肚里闹虫，嘴上磨牙？不靠谱](http://video.pearvideo.com/mp4/third/20180511/cont-1342374-11549788-143020-hd.mp4)  
 [小心越喝越“渴”](http://video.pearvideo.com/mp4/third/20180622/cont-1372678-11549788-122457-hd.mp4)
+
+#### 医学类
+[药神背后：1分钟告诉你白血病常识](http://video.pearvideo.com/mp4/adshort/20180711/cont-1385503-12016563-104626_adpkg-ad_hd.mp4 )
