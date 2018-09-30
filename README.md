@@ -9,7 +9,11 @@
 [空腹喝牛奶，对身体不好？](http://video.pearvideo.com/mp4/third/20180507/cont-1338667-11549788-112931-hd.mp4)  
 [肚里闹虫，嘴上磨牙？不靠谱](http://video.pearvideo.com/mp4/third/20180511/cont-1342374-11549788-143020-hd.mp4)  
 [小心越喝越“渴”](http://video.pearvideo.com/mp4/third/20180622/cont-1372678-11549788-122457-hd.mp4)  
-[科普！父母都矮的孩子能长很高吗？](http://video.pearvideo.com/mp4/adshort/20180926/cont-1441359-12131512-135736_adpkg-ad_hd.mp4)
+[父母都矮的孩子能长很高吗？](http://video.pearvideo.com/mp4/adshort/20180926/cont-1441359-12131512-135736_adpkg-ad_hd.mp4)  
+[摩天高楼为什么摇晃但不折倒？](http://video.pearvideo.com/mp4/third/20180930/cont-1446957-11632378-143358-hd.mp4)  
+[树大招风？抗击台风应该种什么树？](http://video.pearvideo.com/mp4/third/20180930/cont-1446936-11632378-141738-hd.mp4)  
+[比窦娥还冤的食品添加剂](http://video.pearvideo.com/mp4/third/20180929/cont-1446150-11632378-135930-hd.mp4)  
+[2分钟秒懂“第四次全国经济普查”](http://video.pearvideo.com/mp4/third/20180918/cont-1437681-11632378-093859-hd.mp4)  
 
 #### 医学类
 [药神背后：1分钟告诉你白血病常识](http://video.pearvideo.com/mp4/adshort/20180711/cont-1385503-12016563-104626_adpkg-ad_hd.mp4 )  
