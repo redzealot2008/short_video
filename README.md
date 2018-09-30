@@ -14,6 +14,11 @@
 [树大招风？抗击台风应该种什么树？](http://video.pearvideo.com/mp4/third/20180930/cont-1446936-11632378-141738-hd.mp4)  
 [比窦娥还冤的食品添加剂](http://video.pearvideo.com/mp4/third/20180929/cont-1446150-11632378-135930-hd.mp4)  
 [2分钟秒懂“第四次全国经济普查”](http://video.pearvideo.com/mp4/third/20180918/cont-1437681-11632378-093859-hd.mp4)  
+[野外遇到熊，装死靠谱吗？](http://video.pearvideo.com/mp4/third/20180511/cont-1342719-10912830-182049-hd.mp4)  
+[我们为何不能除掉脸上的这种虫](http://video.pearvideo.com/mp4/third/20180927/cont-1444874-10912830-185906-hd.mp4)  
+[你知道你自己的身体里有“死腔”吗](http://video.pearvideo.com/mp4/third/20180926/cont-1444091-10912830-193100-hd.mp4)  
+[为什么有时猫从高处跳下不会摔伤？](http://video.pearvideo.com/mp4/third/20180928/cont-1445231-10912830-120657-hd.mp4)  
+[北极熊为啥不吃企鹅的原因让人心酸](http://video.pearvideo.com/mp4/third/20180928/cont-1445595-12042658-170415-hd.mp4)  
 
 #### 医学类
 [药神背后：1分钟告诉你白血病常识](http://video.pearvideo.com/mp4/adshort/20180711/cont-1385503-12016563-104626_adpkg-ad_hd.mp4 )  
@@ -23,3 +28,8 @@
 #### 育儿类
 [烤箱烤的食物，宝宝吃了会上火？](http://video.pearvideo.com/mp4/third/20180926/cont-1443432-11128901-095929-hd.mp4)  
 [孩子吃几口就不吃饭了，怎么办？](http://video.pearvideo.com/mp4/third/20180910/cont-1431423-11128901-093435-hd.mp4)
+
+#### 历史类
+[明朝一哥王阳明，对现代日本的影响](http://video.pearvideo.com/mp4/third/20180928/cont-1445089-12077817-154236-hd.mp4)  
+[到底朱元璋长啥样？](http://video.pearvideo.com/mp4/third/20180423/cont-1329524-10703584-175514-hd.mp4)  
+[明朝王爷致富经，多生孩子多领俸禄](http://video.pearvideo.com/mp4/third/20180914/cont-1435068-12077817-094628-hd.mp4)  
